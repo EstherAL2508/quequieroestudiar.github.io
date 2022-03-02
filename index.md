@@ -3,4 +3,4 @@ Quiero estudiar psicologia o comunicaciones, primero quiero estudiar psicologia 
 
 Tambien quiero estudiar comunicaciones porque me gusta mucho hablar y decir todo lo que pienso, y aparte me gusta el sueldo que ganan porque no les va tan mal mensualmente, y me gusta mantenerme informada de lo que pase a mi alrededor, y creo que el hecho de poder ser periodista me ayudaria a ser mas segura de mi misma ya poder hablar de manera mas abierta enfrende de millones de personas.
 
-[MENU PRINCIPAL](estheral2508.github.io)
+[Página Principal](estheral2508.github.io)
